@@ -1,0 +1,3 @@
+*Creative*
+*Problem Solver*
+**Coder**
